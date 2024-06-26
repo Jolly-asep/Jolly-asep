@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on cool stuff o_O
 - 📫 How to reach me - using github or instagram -_-
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i m lasy (this is the only truth in  whole profile)
+- ⚡ Fun fact: i m lazy (this is the only truth in  whole profile)
 
 <!---
 Jolly-asep/Jolly-asep is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
